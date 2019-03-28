@@ -19,7 +19,7 @@ This is the English version of one popular answer in zhihu(Chinese Quora & Mediu
   - It's a big park, and have a lot tourists almost everyday, so be sure to get there early
   - Normally adult pandas will hang out early in the morning, normally around 9:30 ~ 10:30 am
   - You can choice to take the tourists bus around IFS(normally it's near the underground's station), or you can take a underground there
-  - Red pandas(looks familiar to racoon) are outside, they are cute, they may follow you, but don't feed them
+  - Red pandas(looks familiar to raccoon) are outside, they are cute, they may follow you, but don't feed them
   - There have peacocks inside as well
 * Pics:
   - ![Panda_pic1](https://pic2.zhimg.com/80/v2-51054f6ac7031b181300d5b9808c9952_hd.jpg)
