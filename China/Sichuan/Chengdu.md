@@ -1,4 +1,4 @@
-# Someplace to Hang Out in Chengdu -- Even People live near by don't know!
+# Someplace to Hang Out in Chengdu
 * Best time to travel: March~May, September ~ November, and avoid Chinese Official Holiday(Because during that period everybody is out!)
 When we think about Chengdu, we always think about panda, hotpot, earthquake, Road chunxi... But there difinitely have some more attractive place in Chengdu!
 
